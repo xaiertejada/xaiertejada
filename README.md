@@ -17,6 +17,6 @@ bring my experience and enthusiasm to a dedicated team.
 *My Personal Networks*
 
 - 👍 [Facebook](https://www.facebook.com/alexis.tejada.900/)
-- 📷[Instagram](https://www.instagram.com/alexis_16t/).
-- 💼[Linkedin](https://www.linkedin.com/in/alexis-xaier-aarón-tejada-chung-39095120b/)
+- 📷 [Instagram](https://www.instagram.com/alexis_16t/)
+- 💼 [Linkedin](https://www.linkedin.com/in/alexis-xaier-aarón-tejada-chung-39095120b/)
 
