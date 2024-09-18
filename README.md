@@ -1,5 +1,5 @@
 # >>cout>>('Hello World!! 👋')
-![Banner para Mercado Shops Productos Tecnológicos Neón Negro (1)](https://github.com/xaiertejada/xaiertejada/assets/148936952/bf6a52c4-0a85-42cf-be3b-dec5c6dfa492)
+![logo-at-blanco-horizontal](https://github.com/user-attachments/assets/c86722c8-7209-467d-9edc-54df34cb46bb)
 
 *My Personal Information*
 
